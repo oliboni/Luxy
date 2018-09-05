@@ -1,2 +1,0 @@
-# Luxy
-é noix
